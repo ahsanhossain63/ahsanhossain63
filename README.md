@@ -1,4 +1,4 @@
-![I am Web Developer] https://pbs.twimg.com/profile_banners/1343940457420574720/1678342656/1500x500
+![I am Web Designer] 
 
 ### Hi there 👋, Hi, I'm Ahsan Hossain
 #### I am Web Developer
